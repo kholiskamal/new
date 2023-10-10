@@ -1,2 +1,1 @@
-# new
-minta tugas
+
